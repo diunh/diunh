@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @diunh 
-- 👀 I’m interested in  ngành thiết kế thời trang 
-- 🌱 I’m currently learning cấp ba
+- 👀 I’m interested in  fashion design industry
+- 🌱 I’m currently learning high shool
 - 💞️ I’m looking to collaborate on github
 - 📫 How to reach me ...
